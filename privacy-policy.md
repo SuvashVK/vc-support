@@ -34,7 +34,7 @@ All collected data is stored securely and is only accessible to authorized perso
 
 ## Your Rights
 
-You may request to access, update, or delete your personal information by contacting us at [Your Contact Email].
+You may request to access, update, or delete your personal information by contacting us at info@visitchangunarayan.com.
 
 ## Contact Us
 
